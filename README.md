@@ -1,1 +1,0 @@
-# Third-Eye-Studio.com
